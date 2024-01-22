@@ -5,7 +5,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=shubhansh16&label=Profile%20views&color=0e75b6&style=flat" alt="shubhansh16" /> </p>
 
-- I’m currently working on **Shopify**
+- I’m currently working on **Blinkit-Clone**
 
 - Ask me about **Android**
 
