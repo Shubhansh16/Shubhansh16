@@ -11,7 +11,7 @@
 
 - How to reach me **shubhansh77@gmail.com**
 
-- Know about my experiences [https://rxresu.me/shubhansh77/shubhansh-mishra/build](https://rxresu.me/shubhansh77/shubhansh-mishra/build)
+- Know about my experiences [https://drive.google.com/file/d/1s5xuvzHR1bhGtsjHuu-GU8MXn7OD2kAV/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
