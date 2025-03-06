@@ -11,7 +11,7 @@
 
 - How to reach me **shubhansh77@gmail.com**
 
-- Know about my experiences [https://shubhansh77.hackerresume.io/4bb286a7-77ad-4925-aedf-cec88f178158)
+- Know about my experiences [https://shubhanshmishra.lovable.app)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
